@@ -1,2 +1,35 @@
- [![ATA! 🔖](https://img.shields.io/badge/ATA!-🔖-red)](https://bloodblizzard.atabook.org/)
-  [![STRAWPAGE! 🎨](https://img.shields.io/badge/STRAWPAGE!-🎨-blue)](https://mysweetoymyakon.straw.page/)
+<div align="center">
+
+# <i>｡˚○ ❝ 𝔚𝔢'𝔩𝔩 𝔟𝔢 𝔱𝔥𝔢𝔯𝔢 𝔱𝔬𝔤𝔢𝔱𝔥𝔢𝔯 𝔬𝔫𝔠𝔢 𝔦𝔱'𝔰 𝔞𝔩𝔩 𝔬𝔳𝔢𝔯 ❞ ｡˚○<i>
+
+<i>𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠<i>
+
+<div align="left">
+<i>𝙼𝚊𝚔𝚎 𝚜𝚞𝚛𝚎 𝚢𝚘𝚞 𝚌𝚘𝚗𝚜𝚞𝚕𝚝 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎,<i> 
+
+ <i>𝚘𝚛 𝚒𝚗 𝚜𝚑𝚘𝚛𝚝, 𝚋𝚎 𝚊 𝚐𝚘𝚘𝚍 𝚙𝚎𝚛𝚜𝚘𝚗.<i>
+ 
+<i>ˢⁱᵍⁿ ᵐʸ ᵃᵗᵃ ᵃⁿᵈ ᵐʸ ˢᵗʳᵃʷᵖᵃᵍᵉ! <i>
+ 
+[![ATA! 🔖](https://img.shields.io/badge/𝙰𝚃𝙰!-🔖-red)](https://bloodblizzard.atabook.org/)
+[![STRAWPAGE! 🎨](https://img.shields.io/badge/𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴!-🎨-blue)](https://mysweetoymyakon.straw.page/)
+<i>𝔅𝔬𝔱𝔥 𝔬𝔣 𝔱𝔥𝔢𝔪 𝔞𝔯𝔢 𝔰𝔱𝔦𝔩𝔩 𝔴𝔬𝔯𝔨𝔰 𝔦𝔫 𝔭𝔯𝔬𝔤𝔯𝔢𝔰𝔰! ⟡ <i>
+<div align="center">
+<i>𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠<i>
+
+# <i> 𓂃 ࣪˖ ִℑ𝔫𝔣𝔬𝔯𝔪𝔞𝔱𝔦𝔬𝔫 𝔞𝔟𝔬𝔲𝔱 𝔭𝔬𝔫𝔦𝔢𝔰 𝔞𝔫𝔡 𝔭𝔱 𝔦𝔫 𝔤𝔢𝔫𝔢𝔯𝔞𝔩 (≖⩊≖) <i>
+<div align="left">
+<i>★ - 𝚈𝚘𝚞 𝚌𝚊𝚗 𝚊𝚋𝚜𝚘𝚕𝚞𝚝𝚎𝚕𝚢 𝚜𝚒𝚝 𝚗𝚎𝚡𝚝 𝚝𝚘 𝚖𝚎,<i>
+ 
+<i> 𝚎𝚟𝚎𝚗 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 𝚗𝚘𝚝 <i> 
+<i>𝚏𝚛𝚘𝚖 𝚝𝚑𝚎 𝚜𝚊𝚖𝚎 𝚏𝚊𝚗𝚍𝚘𝚖<i>
+
+
+<i>★ - ℑ𝔣 𝔶𝔬𝔲 𝔴𝔞𝔫𝔱 𝔱𝔬 𝔦𝔫𝔱𝔢𝔯𝔞𝔠𝔱, 𝔭𝔩𝔢𝔞𝔰𝔢 <i>
+<i> 𝔴𝔥𝔦𝔰𝔭𝔢𝔯 𝔪𝔢!! <i> 
+
+
+<i>★ - 𝙰𝚕𝚕 𝚘𝚏 𝚖𝚢 𝚌𝚘𝚕𝚘𝚛 𝚙𝚊𝚕𝚎𝚝𝚝𝚎𝚜 <i>
+<i> 𝚊𝚛𝚎 𝚏𝚘𝚞𝚗𝚍 𝚘𝚗 𝚙𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝<i> 
+
+<i>★ - 𝔓𝔯𝔢𝔣𝔢𝔯𝔯𝔢𝔡 𝔩𝔞𝔫𝔤𝔲𝔞𝔤𝔢 𝔦𝔰 𝔢𝔫𝔤𝔩𝔦𝔰𝔥 𝔬𝔯 𝔦𝔱𝔞𝔩𝔦𝔞𝔫 <i>
