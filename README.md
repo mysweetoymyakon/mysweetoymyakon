@@ -1,4 +1,4 @@
 <div align="center">
-<img width="954" height="250" alt="banner ena stare" src="https://github.com/user-attachments/assets/17c12d57-becd-45b1-801a-1eb7bd104247" />
+<img width="1002" height="194" alt="banner ena clockù" src="https://github.com/user-attachments/assets/cb7b31a8-bf8c-43b6-9e54-710e7b65ec94" />
 
 
