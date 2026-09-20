@@ -42,7 +42,8 @@ $$‧˚꒰💢꒱༘‧—{\color{#91433d}♯ ‎ ´ཀ`‎‎  𝚌𝚑𝚒𝚒
   <br> andy's apple farm, potato's farm, ms. Lemons,
   <br> mr. Tomato, do you copy, alternate watch, 
   <br> the mandela catalogue, INMIMB, hungry lamu,
-  <br> bonnie's bakery, any chillas art game. 
+  <br> bonnie's bakery, any chillas art game,
+  <br> go go hamster chef!
 
   <br>
   .......................
