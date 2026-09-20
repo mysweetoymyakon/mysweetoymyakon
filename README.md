@@ -39,8 +39,6 @@ $$‧˚꒰💢꒱༘‧—{\color{#91433d}♯ ‎ ´ཀ`‎‎  𝚌𝚑𝚒𝚒
   <br> pressure, sewh, RTC, hxh, black butler
   <br> bbc ghosts, tllh, natm etc, 
   <br> apothecary diaries.
-
-    
   <br> many dead/small fandoms like The Child, 
   <br> andy's apple farm, potato's farm, ms. Lemons,
   <br> mr. Tomato, do you copy, alternate watch, 
