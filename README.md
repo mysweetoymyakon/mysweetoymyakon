@@ -1,3 +1,4 @@
 <div align="center">
-<img width="736" height="478" alt="banner nene birthday" src="https://github.com/user-attachments/assets/6b98738a-832b-4734-94f1-9ba7112b06d9" />
+<img width="954" height="349" alt="banner ena stare" src="https://github.com/user-attachments/assets/17c12d57-becd-45b1-801a-1eb7bd104247" />
+
 
