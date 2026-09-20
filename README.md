@@ -37,7 +37,10 @@ $$‧˚꒰💢꒱༘‧—{\color{#91433d}♯ ‎ ´ཀ`‎‎  𝚌𝚑𝚒𝚒
   <br> retired crk / crob player (2021-2025)
   <br> many big fandoms like chiikawa, GO, 
   <br> pressure, sewh, RTC, hxh, black butler
-  <br> bbc ghosts, tllh, natm etc. 
+  <br> bbc ghosts, tllh, natm etc, 
+  <br> apothecary diaries.
+
+    
   <br> many dead/small fandoms like The Child, 
   <br> andy's apple farm, potato's farm, ms. Lemons,
   <br> mr. Tomato, do you copy, alternate watch, 
